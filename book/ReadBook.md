@@ -41,10 +41,12 @@
 
 美國STEM（科學、技術、工程和數學）的專家奧克利教授（Barbara Oakley）說：
 「我們愈把學習科目變得好玩，愈是破壞孩子學習困難科目的能力。」
+# 網易雲課堂
+https://www.youtube.com/channel/UC_MQXAzHP7E1YB5K49ZCqRQ/playlists
 
 # study python
 第3章 理解什么是写代码与Python的基本类型
-
+進制
 下載書
 http://www.booklist.mobi/?page=1
 
