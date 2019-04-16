@@ -10,6 +10,9 @@
 選取並複製想要查的字
 （必須是單一漢字，而且一定要先按 Ctrl + C 複製起來），
 再直接按「Ctrl + /」
+邏 fsvw
+剛 nxr
+卸 wzp
 擬 jfvz
 虛 zfe
 函 wui
