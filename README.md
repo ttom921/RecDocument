@@ -2,10 +2,11 @@
 文件記錄
 ### 嘸蝦米
 選取並複製想要查的字 （必須是單一漢字，而且一定要先按 Ctrl + C 複製起來）， 再直接按「Ctrl + /」 
-綁 sfb  剩 gffr 織 slad 希 xxn  蟲 ccc
+越 yzap 赋 mbez 舉 eqj  𫋵 viqi 鼎 mdyv 博 jaja 鬆 vtbu 
+綁 sfb  剩 gffr 織 slad 希 xxn  蟲 ccc  凸 ruo  齊 whe  越 yzai 似 puar 歲 zaqs 丟 kua  悉 mha
 承 wsj  截 jaqv 驟 mfrq 藉 rlrd 斷 wwfk 甚 krl  及 rnx  身 sx   識 ilad 鮮 ufbh 展 crk  靜 huee
 複 vvdp 慮 zqh  難 rcv  釋 muq  籤 zbbe 邏 fsvw 剛 nxr  卸 wzp  擬 jfvz 虛 zfe  函 wui  蝦 ovff
-踐 ozk  遞 lzrw 牆 gwoo 監 rvef 雲 uta  飛 zba  處 zpr  眾 pfq  創 bpr  牌 ppqg 插 jgg  邁 rqnw
+踐 ozk  遞 lzrw 牆 gwoo 監 rvef 雲 uta  飛 zba  處 zpr  眾 pfq  牌 ppqg 插 jgg  邁 rqnw 糟 mrod
 久 nv   亞 oe   候 pifd 線 spdw 添 wgnf 遞 lzrw 覽 rver 創 ador 互 dee  圍 owos 喬 gnoo 演 wna
 
 ### 名言
